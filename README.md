@@ -4,6 +4,4 @@
 
 <p align="center"> They're both canon, your honor. </p>
 
-
-https://github.com/user-attachments/assets/5ce19884-97d4-41e9-9324-54893d9e2ecc
-
+https://github.com/user-attachments/assets/eab27155-915e-4556-92eb-5a5efd83e8b3
