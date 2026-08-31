@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.pinimg.com/736x/69/e3/cb/69e3cb4d31ac18dde269315579fc0520.jpg"width="450" />
+<img src="https://i.pinimg.com/736x/56/18/60/561860a858edc7a2f068ee756651a773.jpg"width="600" />
 </p>
 
 <p align="center"> They're both canon, your honor. </p>
