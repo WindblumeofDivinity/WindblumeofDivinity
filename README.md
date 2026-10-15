@@ -2,8 +2,6 @@
 
 https://github.com/user-attachments/assets/8da4efba-4ab0-48e7-ae27-2b298e20b946
 
-https://www.wattpad.com/story/417312096-lovers%27-perpetuity-our-divine-love
-
 # <p align="center"> ${\color{pink}“ \space Amidst \space moon-kissed \space petals, \space Lord \space Barbatos \space whispered \space to \space Her \space Grace, \space }$ </p>
 <p align="center"> ${\color{pink}‘In \space the \space dance \space of \space constellations, \space my \space heart \space finds \space its \space orbit \space around \space you.’ \space ”}$ </p>
 
