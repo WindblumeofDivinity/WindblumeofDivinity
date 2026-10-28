@@ -8,10 +8,10 @@ https://github.com/user-attachments/assets/8da4efba-4ab0-48e7-ae27-2b298e20b946
   ![pony-town-Please--just one kiss, ur grce-boop-blinking-fixed-padded-4x](https://github.com/OurDivineLove/OurDivineLove/assets/153145826/c07e7ece-e27b-4175-b58d-709f78192c1e
 ) ![pony-town-Please what, barbatos_-boop-blinking-fixed-padded-4x](https://github.com/OurDivineLove/OurDivineLove/assets/153145826/fe69b1cb-729a-4590-9a2b-fcb9dce29c23)
 
-<p align="center"> ${\color{purple}Lana Del Rey \space - \space Diet \space mountain \space Dew}$ </p>
-<p align="center"> ${\color{purple}2:27 ———————◉———— 3:45}$ </p>
+<p align="center"> ${\color{purple} Celine \space Dion \space - \space Ashes }$ </p>
+<p align="center"> ${\color{purple}1:35 ———◉———————— 3:19}$ </p>
 
-<p align="center"> ${\color{lightblue}"Never \space was \space there \space ever \space a \space goddess \space so \space pretty."}$ </p>
+<p align="center"> ${\color{lightblue}"Can \space beauty \space come \space out \space of \space ashes?"}$ </p>
 
 <p align="center"> ${\color{pink}.｡.:* ♡ *: .｡.}$ </p>
 
